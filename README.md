@@ -1,0 +1,4 @@
+Galaxy A04e
+SM-A042F/DS
+R83W70Y9ZQX
+
